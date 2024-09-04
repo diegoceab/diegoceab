@@ -7,4 +7,8 @@ Meu nome não é diegoceab
 - Utilizo esse espaço para minha organização e para salvar meus projetos desenvolvidos e talvez, não desenvolvidos(nao me pergunte como)
 
 ### 📧 Email para contato 📧
+ diegotreuk21@gmail.com
+ 
  diego.treuk@escola.pr.gov.br
+
+![](https://media1.tenor.com/m/plWuEbyFX2gAAAAd/dog-theoretical.gif)
